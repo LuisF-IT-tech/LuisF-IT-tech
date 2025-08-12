@@ -38,4 +38,4 @@ What started as a pursuit for a paycheck turned into a calling: **to become the 
 ---
 
 📫 **Let’s connect:**  
-[LinkedIn](https://linkedin.com/in/yourprofile) | [Email](mailto:youremail@example.com)
+[LinkedIn]www.linkedin.com/in/luis-fortunato-it 
