@@ -24,11 +24,6 @@ What started as a pursuit for a paycheck turned into a calling: **to become the 
 
 ---
 
-## 🧪 Featured Projects
-  
-
----
-
 ## 🌱 Learning Philosophy
 > **Skill** – Deliver value through mastery  
 > **Strength** – Own my evolution and take full responsibility  
